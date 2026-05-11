@@ -1,2 +1,2 @@
 hallo!! :3 
-<img width="889" height="1647" alt="infoaboutme" src="https://github.com/user-attachments/assets/230452c4-f96b-4394-8b73-06509a41610e" />
+<img width="889" height="1647" alt="ivedonethis3timesnowimsotired" src="https://github.com/user-attachments/assets/59353de3-9b84-4ee3-911a-70fcadb8814d" />
